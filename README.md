@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mirzaammarmughal
-- 👀 I’m interested in ... Gaming
+- 👀 I’m interested in ... Gaming , Cybersecurity , Hacking , AI And Much More . Inshallah 1 Day
 - 🌱 I’m currently learning ...11Th Class
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... Simple Message Me
